@@ -1,2 +1,23 @@
+<h2 align="center">〘    ʚ ˖  𝗄𝖺𝗍𝗒𝖺 ♡ 𝖿𝗋𝗈𝗀𝗅𝗂𝗇𝗀   ˖ ɞ  ִ〙</h2>
 
-![steamuserimages-a akamaihd](https://github.com/user-attachments/assets/725da81c-840a-4f3d-8377-9a0d63fed0cf)
+###
+
+<h4 align="center">𝗂𝗆 𝖿𝗋𝗂𝖾𝗇𝖽𝗅𝗒 𝖺𝗇𝖽 𝖺𝗅𝗐𝖺𝗒𝗌 𝗁𝖺𝗉𝗉𝗒 𝗍𝗈 𝗆𝖾𝖾𝗍 𝗇𝖾𝗐 𝗉𝖾𝗈𝗉𝗅𝖾  (*´▽`*)</h4>
+
+###
+
+<div align="center">
+  <img height="200" src="https://media.tenor.com/byhVZGkWjqAAAAAM/snow-angel-mercy.gif"  />
+</div>
+
+###
+
+<h6 align="center">discord: .frogling</h6>
+
+###
+
+<div align="center">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=froglinggg.froglinggg&right_color=darkblue&left_text=pills%20swallowed:"  />
+</div>
+
+###
