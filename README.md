@@ -25,7 +25,7 @@
 ###
 
 <div align="center">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=froglinggg.froglinggg&right_color=darkblue&left_text=mochis%20eaten:"  />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=froglinggg.froglinggg&right_color=darkblue&left_text=pills%20swallowed:"  />
 </div>
 
 ###
