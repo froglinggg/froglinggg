@@ -1,4 +1,4 @@
-<h2 align="center">〘    ʚ ˖  𝗄𝖺𝗍𝗒𝖺 ♡ 𝖿𝗋𝗈𝗀𝗅𝗂𝗇𝗀   ˖ ɞ  ִ〙</h2>
+<h2 align="center">〘    ʚ ˖  ♡ 𝖿𝗋𝗈𝗀𝗅𝗂𝗇𝗀   ˖ ɞ  ִ〙</h2>
 
 ###
 
@@ -18,9 +18,6 @@
   <img height="200" src="https://media.tenor.com/byhVZGkWjqAAAAAM/snow-angel-mercy.gif"  />
 </div>
 
-###
-
-<h6 align="center">discord: .frogling</h6>
 
 ###
 
